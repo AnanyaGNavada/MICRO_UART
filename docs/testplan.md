@@ -1,1 +1,1 @@
-
+[UART_PLAN](https://1drv.ms/x/c/a9af9dc9f6e4cad2/IQC8cIBCY6UISK4UgC79n4gfAazmGPPuBMLzHai13V6VTNo?e=OSkOXX)
